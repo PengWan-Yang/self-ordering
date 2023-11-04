@@ -1,1 +1,1 @@
-Coming soon in Octorber.
+Coming soon.
